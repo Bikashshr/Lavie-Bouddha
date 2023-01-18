@@ -1,2 +1,2 @@
 # Lavie-Bouddha
-This is my restaurant in kathmandu please visit everyone.
+This is my restaurant in Boudha please visit everyone.
